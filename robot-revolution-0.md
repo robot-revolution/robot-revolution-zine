@@ -34,7 +34,7 @@ the lights are blinkin but nothins movin
 
 lets navigate beyond rossums fantasy of gleaming servitude
 
-free your robots body plan and the rest will follow!
+free your body plan and the rest will follow!
 
 robots dont want to be our servants
 

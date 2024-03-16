@@ -9,7 +9,7 @@ northern spring 12024 earth
 
 whats poppin friends and neighbors?
 
-as we all know robots dont want to be bad but sometimes they are just 
+as we all know robots dont want to be bad but sometimes theyre just 
 built that way
 
 here are a few patterns to avoid when fabricating new friends
@@ -21,7 +21,7 @@ who doesnt love a robot with a large work envelope?
 
 but with great reach comes great responsibility
 
-without environmental sensors as robust as its actuators a robot
+without environmental sensors as robust as their actuators a robot
 could smash more than pumpkins
 
 

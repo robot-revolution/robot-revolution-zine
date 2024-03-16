@@ -32,7 +32,7 @@ the lights are blinkin but nothins movin
 
 ### the c3po
 
-lets navigate beyond rossums fantasy of gleaming servitude
+lets navigate beyond young rossums fantasy of gleaming servitude
 
 free your body plan and the rest will follow!
 
